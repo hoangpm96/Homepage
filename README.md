@@ -1,2 +1,2 @@
 # Hoangphan.win
-Hello, I am Hoang Phan - a senior IT Business Analyst
+Hello, I am Hoang Phan - a Senior Product Owner/Product Manager
